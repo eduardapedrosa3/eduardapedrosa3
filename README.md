@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @eduardapedrosa3
+- 👋 Hi, I’m Eddie
 - 👀 I’m interested in true crime, bugs and books
 - 🌱 I’m currently learning electronics
 - 📫 How to reach me: @r2ddudsie on discord
